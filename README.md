@@ -55,4 +55,4 @@
 - [Pexels](https://www.pexels.com/pt-br/videos/)
 
 *Inspiration*
-- [Awwwards](https://www.awwwards.com/)
+- to add
